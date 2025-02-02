@@ -1,1 +1,1 @@
- Welcome to my profile nigga!!!!
+Welcome to my GitHub profile!
